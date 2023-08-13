@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ThrowMax,
+- 👀 I’m interested in programming,when I was 13y.o. plays with scirraconstruct
+- 🌱 I’m currently learning Java,now I am 24...
+- 💞️ I’m looking to collaborate on some special people who would like to help me learn new things
+- 📫 How to be a confident in myself and my skills 
